@@ -1,2 +1,2 @@
 # The-Beginning
-To learn something
+To learn something new and change the world !
